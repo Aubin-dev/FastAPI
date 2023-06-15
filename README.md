@@ -50,4 +50,3 @@
   ![Logs](https://user-images.githubusercontent.com/17409469/142371199-c5ae36fa-7fd6-4b47-aea6-da728f7f8990.png)
 
 
-**Drop me email for any queries on subir.verma48@gmail.com**
